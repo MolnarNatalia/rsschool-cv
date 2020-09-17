@@ -29,3 +29,4 @@ Ukrainian – native, Russian – fluent, English - intermediate level. I do my 
 - Purposefulness, responsibility, high working capacity, perseverance, communicability, self-organized. 
 - Driving license: “В”, “С”. 
 - Hobbies: psychology, traveling.
+
